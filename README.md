@@ -1,1 +1,1 @@
-# tailor
+# friendshiptailorsurathkal.github.io
